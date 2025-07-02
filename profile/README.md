@@ -47,7 +47,7 @@ Stepping stones include:
 
 So, Black Belt delivers maximum value for serious traders who want deep, ongoing access.
 
-[Join Li5hifu Black Belt Access Now]([kelexbawz.com/li5hifu])
+[Join Li5hifu Black Belt Access Now](https://whop.com/black-belt-lifetime-access?a=kelechienwere1234)
 
 ---
 
@@ -71,7 +71,7 @@ No fluff—just actionable recaps, charts, and commentary designed to sharpen yo
 
 ---
 
-[Join Li5hifu Black Belt Access Now to Unlock Lifetime Trade Signals]([kelexbawz.com/li5hifu])
+[Join Li5hifu Black Belt Access Now to Unlock Lifetime Trade Signals](https://whop.com/black-belt-lifetime-access?a=kelechienwere1234)
 
 ---
 
@@ -98,7 +98,7 @@ These genuine testimonials suggest credibility and peer alignment. However, beyo
 
 ---
 
-[Join Li5hifu Black Belt Access Now to Start Trading with Confidence]([kelexbawz.com/li5hifu])
+[Join Li5hifu Black Belt Access Now to Start Trading with Confidence](https://whop.com/black-belt-lifetime-access?a=kelechienwere1234)
 
 ---
 
@@ -139,4 +139,4 @@ Not publicly. You’ll need to ask inside the community or request verified resu
 
 I’ve walked through every angle—features, pricing, creator credibility, audience fit, and market alternatives. **Li5hifu Black Belt Access** is a premium, no-compromise trading community built for dedicated traders. If you match their target and are comfortable with the investment, it could be a game-changer.
 
-[Join Li5hifu Black Belt Access Now to Make the Leap]([kelexbawz.com/li5hifu])
+[Join Li5hifu Black Belt Access Now to Make the Leap](https://whop.com/black-belt-lifetime-access?a=kelechienwere1234)
